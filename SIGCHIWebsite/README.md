@@ -1,2 +1,0 @@
-# SIGCHI-Website
-# SIGCHI-Website
